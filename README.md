@@ -1,2 +1,2 @@
 # spidermanrun
-https://github.com/emrecanbahar/spidermanrun/assets/111504654/1607b151-5dc0-4098-9621-5da11f50fa85
+https://github.com/emrecanbahar/spidermanrun/assets/111504654/ab169347-44e1-4993-89a0-0f150edec8bc
